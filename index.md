@@ -1,6 +1,6 @@
 Welcome to starbuckscrypto domain!!!
 
-This is in anticipation of adopting crypto.
+This site is created in anticipation and preparation of coffee shops adopting crypto.
 
 I missed coffee to many times to have had crypto in a mobile wallet but no cash on me, for real though.
 
